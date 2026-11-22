@@ -1,0 +1,1 @@
+# VKT-Riders-sticker
